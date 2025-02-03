@@ -5,9 +5,9 @@
 
 ## Contact
 
-Email: zkai0806@gmail.com
-Linkedin: https://www.linkedin.com/in/heng-zhe-kai-892971272/
-Instagram: https://www.instagram.com/h._.zhekaii/
+- Email: zkai0806@gmail.com
+- Linkedin: https://www.linkedin.com/in/heng-zhe-kai-892971272/
+- Instagram: https://www.instagram.com/h._.zhekaii/
 
 
 
